@@ -3,7 +3,7 @@
 - 🔭 I’m currently working as a Bioinformatician
 - 🌱 I’m currently learning lots 
 - 🤔 I’m looking for help with everything
-- 📫 How to reach me: https://www.researchgate.net/profile/Peter_Thorpe3
+- 📫 Research: https://www.researchgate.net/profile/Peter_Thorpe3
 - ⚡ my music is here: https://soundcloud.com/peter-thorpe
 
 <!--
