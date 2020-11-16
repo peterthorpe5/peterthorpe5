@@ -1,8 +1,7 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working as a Bioinformatician
-- 🌱 I’m currently learning lots 
-- 🤔 
+- 🌱 I’m currently learning lots 🤔 
 - ⚡ my first album is here: https://open.spotify.com/album/4fOihLewF1ju1ID22ZI4bi
 
 - 📫 Research: https://www.researchgate.net/profile/Peter_Thorpe3
