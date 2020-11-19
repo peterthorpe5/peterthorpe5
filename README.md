@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning lots 🤔 
 - ⚡ my first album, shredded metal is here: https://open.spotify.com/album/4fOihLewF1ju1ID22ZI4bi
 - ⚡ 2nd album: https://open.spotify.com/album/0armXti1Trxet3I1NeUQwE
-- ⚡ albums on youtune: https://www.youtube.com/channel/UCQiXk8HwtPhRZoffLnbNWhA?view_as=subscriber
+- ⚡ albums on youtube: https://www.youtube.com/channel/UCQiXk8HwtPhRZoffLnbNWhA?view_as=subscriber
 - 📫 Research: https://www.researchgate.net/profile/Peter_Thorpe3
 
 
