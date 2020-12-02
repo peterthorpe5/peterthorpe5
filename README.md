@@ -2,8 +2,11 @@
 
 - 🔭 I’m currently working as a Bioinformatician
 - 🌱 I’m currently learning lots 🤔 
+
 - ⚡ my first album, shredded metal is here: https://open.spotify.com/album/4fOihLewF1ju1ID22ZI4bi
-- ⚡ 2nd album: https://open.spotify.com/album/0armXti1Trxet3I1NeUQwE
+- ⚡ 2nd album, Haunted: https://open.spotify.com/album/0armXti1Trxet3I1NeUQwE
+- ⚡ 3rd album, Metal Flowers:  https://open.spotify.com/album/3FPLYK1IO6H4j4BXBZLeQo
+
 - ⚡ albums on youtube: https://www.youtube.com/channel/UCQiXk8HwtPhRZoffLnbNWhA?view_as=subscriber
 - 📫 Research: https://www.researchgate.net/profile/Peter_Thorpe3
 
